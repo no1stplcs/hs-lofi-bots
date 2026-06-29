@@ -8,4 +8,4 @@
 4. We are not responsible for any damages or problems caused by the bot.
 5. We reserve the right to stop or modify the bot at any time without notice.
 
-Contact: your@email.com
+Contact: hsondz210@gmail.com
